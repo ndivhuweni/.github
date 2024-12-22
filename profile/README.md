@@ -12,13 +12,15 @@ Here are some of the best 123Movies proxy sites that still offer free, high-qual
 
 | **SITES**                         | **Country**     | **Status** |
 |-----------------------------------|-----------------|------------|
-| [OK123MOVIES.CC](https://ok123movies.cc) | United States | **Alive**  |
+| [OK123MOVIES.CC]((https://www1.123movieson.one/)) | United States | **Alive**  |
 | [123MOVIESFREE4U.ICU](https://123moviesfree4u.icu) | United States | **Alive**  |
 | [123MOVIESGOHD.CC](https://123moviesgohd.cc) | United States | **Alive**  |
 | [123MOVIESFREE4U.TOP](https://123moviesfree4u.top) | United States | **Alive**  |
 | [123-HD.LOL](https://123-hd.lol) | United States | **Alive**  |
 | [123MOVIESDAILY.PRO](https://123moviesdaily.pro) | United States | **Alive**  |
 | [123MOVIESDOWNLOAD.INFO](https://123moviesdownload.info) | United States | **Alive**  |
+
+
 
 These sites offer a wide variety of movies and TV shows, from the latest blockbusters to classic films. They are designed with user convenience in mind, making it easy to browse and stream content in a clean and secure environment. 
 
